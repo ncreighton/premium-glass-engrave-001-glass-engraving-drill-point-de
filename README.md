@@ -1,0 +1,2 @@
+# premium-glass-engrave-001-glass-engraving-drill-point-de
+Tired of losing track of which drill bit you used for a specific glass engraving effect? Stop guessing and start planning with a system that organizes your drill point designs, bit inventory, and project notes in one place.  The Glass Engraving Drill Point Design Planner is the first Notion template built specifically for drill-point glass engraver
